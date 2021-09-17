@@ -1,1 +1,1 @@
-👋 Hi, I’m @dilinieseimon
+👋🏽 Hi, I’m @dilinieseimon
